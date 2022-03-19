@@ -1,5 +1,5 @@
 fulldraft-aandiron-architect.md
-Last modified: Sat Mar 19, 2022  12:19PM
+Last modified: Sat Mar 19, 2022  04:18PM
 
 
 # The Architect (rough draft)
@@ -94,7 +94,7 @@ Nobody moved.
 
 "Good. OK then. Would you please all get on your knees, in a line in front of me."
 
-A rustle of tasteful fabrics, and a few exhales of effort from the older employees as the whole crew lowered to their knees like a church choir before the Eucharist.
+A rustle of tasteful fabrics accompanied by a few exhales of effort from the older employees as the whole crew lowered to their knees like a church choir before the Eucharist.
 
 "Now maybe you heard: I just fucked the lead designer in the ass with our building. Notice I say _our_ building --- because we all worked on it together, right? And you loved getting fucked in the ass with _our_ building didn't you?" He looked over at the lead designer who nodded vigorously.
 
