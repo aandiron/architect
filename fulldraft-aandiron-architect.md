@@ -1,5 +1,5 @@
 fulldraft-aandiron-architect.md
-Last modified: Thu Mar 17, 2022  12:51PM
+Last modified: Sat Mar 19, 2022  12:19PM
 
 
 # The Architect (rough draft)
@@ -36,11 +36,11 @@ He reached into his drawer and pulled out a set of leather straps with buckles. 
 
 "Look, you've been here for a while. But this building, this tower, this is the first major project we've completed together, right? What do you think of this building?"
 
-"I think it's perfect sir, a real masterpiece. I think you'll be written about in all the major press. I think you'll be invited onto the lecture circuit at all the top schools. I think this building is a landmark in the history of architecture. [list some related landmark buildings here -- architect fan service]"
+"I think it's perfect sir, a real masterpiece. I think you'll be written about in all the major press. And you'll be invited onto the lecture circuit at all the top schools. This building is a unquestionably a landmark in the history of architecture. The world has seen nothing like it since the Seagram Building. Surely it's inevitable for the Pritzker."
 
 "I think there's little that could be said to diminish its prominence as well. And I don't say that lightly. But do you see how all the attention comes to me? Even the way you just phrased those sentences of praise --- it was all about me. But a building like this isn't really the work of one person. It's the work of a team. More than a team, it's the work of a community. A city. Sometimes even a nation. And I like to celebrate that work with my team. I like to pass along at least some of the glory to everyone."
 
-The architect held the model firmly and aligned the base with the mount on the leather harness. He snapped the oddly-shaped bottom of the model into place. Then he stood and stepped around the large mid-century wooden desk. He handed the harness with the model attached to it to the young man. He began to unbuttno his shirt, pulling tails out as he went. Then he unzippped his trousers.
+The architect held the model firmly and aligned the base with the mount on the leather harness. He snapped the oddly-shaped bottom of the model into place. Then he stood and stepped around the large mid-century wooden desk. He handed the harness with the model attached to it to the young man. He began to unbutton his shirt, pulling tails out as he went. Then he unzipped his trousers.
 
 "I want you to attach that to me."
 
@@ -48,13 +48,13 @@ The architect held the model firmly and aligned the base with the mount on the l
 
 "And get on your knees while you do it."
 
-"Umm..." The young designer murmured again, looking very unsure. But he slowly sank to his knees, the fabric of his expensive suit that curved over his knees pushed into the soft weave of the carpet. He wrapped the harness around his boss, and buckled it.
+"Umm..." The young designer murmured again, looking very unsure. But he slowly sank to his knees, the fabric of his expensive suit curving over his knees pushed into the soft weave of the carpet. He wrapped the harness around his boss, and buckled it.
 
-"Tighter." The architect said. He shifted his cock into the space inside the harness for it and the young man tightened the leather straps by one notch.
+"Tighter." The architect said. He used his hand to shift his cock into the space inside the harness provided for it and the young man tightened the leather straps by one notch.
 
 "Now. Put your lips on the tip of my building. Our building."
 
-He kissed the tip of the building, then slowly let his lips fall open, and he took the wide tip of the model into his mouth. He concentrated as he breathed through his angular nose.
+He kissed the tip of the building, then slowly let his lips fall open, and he took the wide end of the model into his mouth. He concentrated as he breathed through his angular nose.
 
 The architect put his hand on the young man's head and drove the building down his throat. "You love our building?" 
 
@@ -64,7 +64,7 @@ The lead designer of the building nodded vigorously.
 
 The young man stood, and the architect put his hand on the back of of the young man's head and pushed his face down against the lightly stained hardwood of the mid-century desk. "Undo your pants and let them down."
 
-While the young designer did so, the architect dipped his fingers into a tub of thick greasy lube that had sat unnoticed near his keyboard. He spread it thick all along the length of the hard resinous model and up over the tip of the building. "Take a deep breath!" And holding the ass cheeks wide, he shoved the model of his building up the designer's rear. "God fucking damn! The muscles of your legs! So fucking taught! And look at the definition of your ass! You must not be sitting at your desk enough. You must have time to work out! I guess I need to work you harder if you have all that free time to dedicate to shaping your body."
+While the young designer did so, the architect dipped his fingers into a tub of thick greasy lube that had sat unnoticed near his keyboard. He spread it thickly all along the length of the hard resinous model and up over the tip of the building. "Take a deep breath!" And holding the ass cheeks wide, he shoved the model of his building up the designer's rear. "God fucking damn! The muscles of your legs! So fucking taught! And look at the definition of your ass! You must not be sitting at your desk enough. You must have time to work out! I guess I need to work you harder if you have all that free time to dedicate to shaping your body."
 
 "Yes sir!"
 
@@ -74,17 +74,17 @@ The architect slid his hands up under the jacket of the young designer's suit. "
 
 "Here, let me help you out."
 
-The architect reached around and took the young designer's cock in his hand, turgid and throbbing purple because of the personal attention of the great man, and with every thrust of his building deep into the young man's hard body, he gave a long greasy stroke to his cock. Soon the young man was spilling his jizz all over the carpet. "Excellent! You really do love our building, don't you? You love it so much it makes you cum?"
+The architect reached around and took the young designer's cock in his hand, turgid and throbbing purple due to the personal attention of the great man. With every thrust of his building deep into the young man's hard body, he gave a long greasy stroke to cock gripped in his fist. Soon the young man was spilling his jizz all over the carpet. "Excellent! You really do love our building, don't you? You love it so much it makes you cum?"
 
 "I do sir! I think of nothing else except the tower!"
 
-"I appreciate that kind of dedication. Here's what I want you to do now.. no, no... Yes, you can pull your pants up now. This is what I want you to do: go get the table moved out of the conference room. And then I want the whole team that worked on this project assembled there in the next hour. OK?"
+"I appreciate that kind of dedication. Here's what I want you to do now... No, no... Yes, you can pull your pants up now. This is what I want you to do: go get the table moved out of the conference room. And then I want the whole team that worked on this project assembled there in the next hour. OK?"
 
-"OK sir! No problem."
+"No problem at all sir!"
 
-Before an hour was up the architect was standing in front of the twenty-some odd number of people on the design team. They were of all ages, men and women, but the median trended younger since it was cheaper to hire architects straight out of school. Experienced architects expected too much money and only did slightly better work, and less of it. Every one of them was dressed with that certain impeccable style that marked them as ivy league creatives --- each unique, to a point, though if you squinted they kind of all looked like they were wearing a variation on the same tightly-tailored dark suit. Men and women alike.
+Before an hour was up the architect was standing in front of the twenty-some odd number of people on the design team. They were of all ages, men and women, but the median trended younger since it was cheaper to hire architects straight out of school. Experienced architects expected too much money and only did slightly better work, and less of it. Every one of them was dressed with that certain impeccable style that marked them as ivy league creatives --- each unique, to a point, though if you squinted men and women alike looked like they were wearing a variation on the same tightly-tailored dark suit.
 
-"OK design team!" Said the architect. "Thank you for interrupting your work to gather here on short notice! I know it has been a long day already. But the design-build contract has officially been signed, and I thought we should pause for a moment to celebrate!" He could feel the model bulging in his pants, straining against the zipper for release. He was sure the team could all see it too. "...To celebrate the fruits of our labor!" He unzipped his pants and let the model fall out, the tiny perfectly-rendered details of his building standing out at sharp salute in front of him. "Now I know you all love your job here. Right?"
+"OK design team!" Said the architect. "Thank you for interrupting your work to gather here on short notice! I know it has been a long day already. But the design-build contract has officially been signed, and I thought we should pause for a moment to celebrate..." He could feel the model bulging in his pants, straining against the zipper for release. He was sure the team could all see it too. "...To celebrate the fruits of our labor!" He unzipped his pants and let the model fall out, the tiny perfectly-rendered details of his building standing out at sharp salute in front of him. "Now I know you all love your job here. Right?"
 
 A murmured chorus of assent.
 
