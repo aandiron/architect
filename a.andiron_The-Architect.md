@@ -1,5 +1,5 @@
 a.andiron_The-Architect.md
-Last modified: Tue Mar 22, 2022  01:19PM
+Last modified: Wed Mar 23, 2022  01:17PM
 
 
 # The Architect
@@ -82,7 +82,7 @@ The architect reached around and took the young designer's cock in his hand, tur
 
 "No problem at all sir!"
 
-Before an hour was up the architect was standing in front of the twenty-some odd number of people on the design team. They were of all ages, men and women, but the median trended younger since it was cheaper to hire architects straight out of school. Experienced architects expected too much money and only did slightly better work, and less of it. Every one of them was dressed with that certain impeccable style that marked them as ivy league creatives --- each unique, to a point, though if you squinted men and women alike looked like they were wearing a variation on the same tightly-tailored dark suit.
+Before an hour was up, the architect was standing in front of the twenty-odd people on the design team. They were of all ages, men and women, but the median trended younger since it was cheaper to hire architects straight out of school. Experienced architects expected too much money and only did slightly better work, and less of it. Every one of them was dressed with that certain impeccable style that marked them out as ivy league creatives --- each unique, to a point. Though if you squinted, men and women alike looked like they were wearing a variation on the same tightly-tailored dark suit.
 
 "OK design team!" Said the architect. "Thank you for interrupting your work to gather here on short notice! I know it has been a long day already. But the design-build contract has officially been signed, and I thought we should pause for a moment to celebrate..." He could feel the model bulging in his pants, straining against the zipper for release. He was sure the team could all see it too. "...To celebrate the fruits of our labor!" He unzipped his pants and let the model fall out, the tiny perfectly-rendered details of his building standing out at sharp salute in front of him. "Now I know you all love your job here. Right?"
 
@@ -92,7 +92,7 @@ A murmured chorus of assent.
 
 Nobody moved.
 
-"Good. OK then. Would you please all get on your knees, in a line in front of me."
+"Good. OK then. Would you please all get on your knees in a line in front of me."
 
 A rustle of tasteful fabrics accompanied by a few exhales of effort from the older employees as the whole crew lowered to their knees like a church choir before the Eucharist.
 
@@ -100,13 +100,13 @@ A rustle of tasteful fabrics accompanied by a few exhales of effort from the old
 
 "But now our building is dirty. I need you all to help me with this fun little project of cleaning up our building. One at a time, OK? I'll start on the right here..."
 
-The first person on their knees was a young woman with red hair --- carefully straightened and with precisely clipped bangs --- dressed in a blazer and skirt. The architect stood in front of her and she eyed the building. He put the model to her lips and she suddenly dove down on it with surprising eagerness. She sucked the whole thing down her throat, and gagged it back. Tears welled in the corners of her eyes, and then she pulled her head back, a long thing string of saliva still connecting her lips to the highest point of the building.
+The first person on their knees was a young woman with red hair --- carefully straightened and with precisely clipped bangs --- dressed in a blazer and skirt. The architect stood in front of her as she eyed the building. He put the model to her lips, and she suddenly dove down on it with surprising eagerness. She sucked the whole thing down her throat and gagged it back. Tears welled in the corners of her eyes, and then she pulled her head back; a long thin string of saliva still connecting her lips to the highest point of the building.
 
 "Oh my! You _do_ love our building don't you honey?"
 
 She looked up at the architect grinning happily.
 
-He moved onto the next person. Another attractive young architectural professional, of Asian descent. He looked at the model hanging in the air in front of him with much more trepidation than his colleague, but he too managed to work up the courage to take it into his mouth and suck on it gently for a few minutes.
+He moved onto the next person. Another attractive young architectural professional, with a slight build and dark hair. This one looked at the model hanging in the air in front of him with much more trepidation than his colleague, but he too managed to work up the courage to take it into his mouth and suck on it gently for a few minutes.
 
 Next up was an older fellow who had been at the firm for a number of years. He had no hesitation at all, having been through this process a number of times. He eagerly lapped his tongue up and down the length of the building and then sucked it between his lips, his salt-and-pepper head bobbing back and forth rapidly along the shaft.
 
