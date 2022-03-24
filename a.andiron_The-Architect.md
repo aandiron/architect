@@ -1,5 +1,5 @@
 a.andiron_The-Architect.md
-Last modified: Wed Mar 23, 2022  01:17PM
+Last modified: Thu Mar 24, 2022  01:47PM
 
 
 # The Architect
@@ -116,21 +116,21 @@ The architect made his way down the line. Not one of his staff shirked their res
 
 --- --- ---
 
-A few hours later the architect passed through the heavy dark-stained, wood-paneled doors of the mayor's office. The mayor, sitting behind the heavy wooden desk, looked up from legislation she was reviewing as he entered.
+A few hours later the architect passed through the dark-stained, wood-paneled doors of the mayor's office. The mayor, sitting behind a heavy hardwood desk, looked up from legislation she was reviewing as he entered.
 
-"Oh! I'm so glad you reached out to make an appointment." She said. "I have been meaning to meet with you. Your building is such an important project for our city."
+"Oh! I'm so glad you reached out to make an appointment." She said. "I have been meaning to meet with you. Your building will be such an important new part of our city, I thought we should talk about that before the first shovel goes into the ground."
 
-"I am aware of that. I can't emphasize enough how much this building will be a _part_ of the city. My designers and I have worked tirelessly to make sure that every approach is considered. It isn't a building that will stand alone, not some monstrosity of ego; rather it is something that will reflect the city back on itself."
+"I agree. And I can't emphasize enough how much this building will be a _part_ of the city. My designers and I have worked tirelessly to make sure that every approach is considered. It isn't a building that will stand alone, not some monstrosity of ego; rather it is something that will reflect the city back on itself."
 
 "You're not saying it's understated are you? It could hardly be called subtle...
 
-"Not at all! No no. It is in fact intended to be the main feature of the city. The hallmark. The calling card. The icon. The shining beacon on an otherwise dreary skyline. It will, I hope, eventually be the thing that your city is known for. I just mean that it's not _unconsidered_. It has a _relationship_ with the city, understand?"
+"Not at all! No no. It is in fact intended to be the main feature of your city. The hallmark. The calling card. The icon. The shining beacon on an otherwise dreary skyline. It will, I hope, eventually be the thing that your city is known for. I just mean that it's not _unconsidered_. It has a _relationship_ with the city, understand?"
 
 "Well, good. That's what I was hoping. The last thing we need is another understated building that blends without notice into the low-rise fabric of the city. Buildings without recognition are not the kinds of buildings that get one elected."
 
 "Trust me Madam Mayor, when you cut the ribbon on my building, you will get nothing but recognition."
 
-"I... maybe I shouldn't say this because it makes me look weak... so this stays behind closed doors, OK? But I... I _need_ your building --- not just politically, but, like, physically too. It's just so... perfect."
+"I... maybe I shouldn't say this because it makes me look weak; so this stays behind closed doors, OK? But I... I _need_ your building --- not just politically, but, like, physically too. It's just so... perfect."
 
 "I know you need it Madam Mayor. And you will have it. There's just one thing I need you to do for me..." He unzipped his trousers and let the straining erect model spring to its full glory.
 
@@ -144,13 +144,15 @@ The architect and the mayor both gazed admiringly at it. The mayor moved slowly 
 
 "I need you, Madam Mayor, to sit up on your desk."
 
-She did not hesitate. She scooted her firm ass back to a comfortable position on the hardwood, and the architect stepped towards her, following the pointing form of his building around the desk. He approached her slowly and undid the buttons on the blazer of her pantsuit, and then opened her blouse. "Take it in your hands." The architect said to her.
+She did not hesitate. She scooted her firm ass back to a comfortable position on the hardwood, and the architect moved towards her, following the pointing form of his building around the desk. 
+
+He approached her slowly and undid the buttons on the blazer of her pantsuit, and then opened her blouse. "Take it in your hands." The architect said to her.
 
 She wrapped both her hands around the model and felt the size of it filling and spilling beyond her palms. He released her tits from her bra, and she leaned over slightly and she guided the tip of the model up to her nipples, circling them slowly.
 
-"God, I _love_ it." The mayor said. She unzipped her pants and slide them down with her panties. She kicked her heeled shoes off with her toes and let the pants drop to the floor. She leaned back and spread her legs wide. "I want that building in my city so badly! Give it to me!"
+"God, I _love_ it." The mayor said. She unzipped her pants and slid them down with her panties. She kicked her heeled shoes off with her toes and let the pants drop to the floor. She leaned back and spread her legs wide. "I want that building in my city so badly! Give it to me!"
 
-The architect took the building in his fist and pressed the bulging tip up against the open lips of the mayor's pussy.
+The architect took the building in his fist and pressed the bulging tip up against the open lips of the mayor's waiting pussy.
 
 "Just the thought of it, standing out there, it makes me so... so... wet."
 
@@ -162,15 +164,15 @@ The architect took the building in his fist and pressed the bulging tip up again
 
 "God I want to accommodate your structure... your vision... your brilliant genius! Give me more! Please! More!" With every driving thrust she let out a loud gasp, but her eyes never broke contact with the architect's. She wanted to see his brilliant genius shining in his eyes while he rammed his building up into her cunt.
 
-There was a loud snap. And the architect fell suddenly forward no longer supported by the harness and the structure mounted to it.
+There was a loud snap. And the architect fell suddenly forward, no longer supported by the harness and the structure mounted to it.
 
 "What... what happened?" Asked the Mayor.
 
-"It broke. I broke my model in you." He slide it out of her, and it hung limply from the harness, the strong spine of its core snapped.
+"It broke. I broke my model in you." He slipped it out of her, and it hung limply from the harness, the strong spine of its core snapped, the tip dangling down.
 
 "Oh... how... how sad it looks."
 
-"No matter!" Said the architect gesturing toward the large portal of the window behind them. "It's only a matter of time now before you will be able to gaze out your window at the full-sized real thing, and spend every day in your office contemplating my greatness!"
+"No matter!" Said the architect gesturing toward the large portal of the window behind them. "It's only a matter of time now before you will be able to gaze out your window at the full-sized real thing, and spend your every day contemplating my greatness!"
 
 
 
