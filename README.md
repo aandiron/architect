@@ -1,12 +1,12 @@
 README.md
-Last modified: Sun Mar 13, 2022  02:49PM
+Last modified: Mon Mar 28, 2022  06:26PM
 
 # The Architect
 * By A. Andiron
 
 ## How to read it:
 * Available to read on Literotica:
-	* 
+	* https://www.literotica.com/s/the-architect-4
 * Or, compile from this source code using latex.
 	* (Or just read the markdown, available in source.) 
 
